@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Hoàng Thanh Bình
+- 👀 I'm interested in you
+- 🌱 I am currently studying at the University of Mines - Geology.
+- 💞️ I'm looking for a live job involving photographer or coder
+- 📫 You can contact me via email: Hoangthanhbinh0809@gamil.com
